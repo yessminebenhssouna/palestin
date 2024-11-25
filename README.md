@@ -1,0 +1,2 @@
+# palestin
+information of palestine
